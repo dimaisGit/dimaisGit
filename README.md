@@ -17,7 +17,7 @@ Despite the absence of enjoyment in the former, both of them are well controlled
 </div>
 
 
-The second one requires money, so that's the reason I'm here. </br>
+The latter one requires money, so that's the reason I'm here. </br>
 This is simply the best deal in our cruel capitalist world.
 
 
