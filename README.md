@@ -10,7 +10,7 @@
 
 Well, it's not actually me, but I'm doing the same stuff. </br>
 No, I don't like programming. The only thing I love is cars. </br>
-Despite the lack of revelling in the former one, both of them are well controlled by me
+Despite the absence of enjoyment in the former, both of them are well controlled by me
 
 <div id="header" align="center">
   <img src="https://media.giphy.com/media/14eo2RwJ0E7k0E/giphy.gif" width="300" />
